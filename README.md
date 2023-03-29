@@ -13,7 +13,7 @@
 
 - ⚡ Fun fact **Im Boring**
 
-<h3 align="left">Connect with me: on LinkedIn</h3>
+<h3 align="left">Connect with me: on LinkedIn(find me & lets connect)</h3>
 <p align="left">
 </p>
 
